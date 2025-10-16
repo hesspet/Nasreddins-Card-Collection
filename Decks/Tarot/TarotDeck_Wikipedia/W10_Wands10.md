@@ -1,6 +1,15 @@
-**ZEHN DER STÄBE**
+# Zehn der Stäbe
 
-Ein Mann, der von der Last von zehn Stäben überwältigt wird.
+## Schlüsselbegriffe
+- Lasten
+- Verantwortung
+- Abschlussphase
 
-* Unterdrückung, Erfolg, Gewinn, Verkleidung, Betrug. Erfolg wird beeinträchtigt, wenn die Neun der Schwerter folgt. Bei einer Rechtsangelegenheit droht sicherer Verlust. 
-* **Umgekehrt:** Widersprüche, Schwierigkeiten, Intrigen. 
+## Aufrecht
+Die Zehn der Stäbe weist auf hohe Anforderungen hin, die kurz vor dem Ziel stehen. Priorisierung hilft, Überlastung zu vermeiden.
+
+## Umgekehrt
+Umgekehrt kann Erschöpfung, Delegationsbedarf oder das Fallenlassen unnötiger Bürden angezeigt sein.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

@@ -1,8 +1,15 @@
-**ACHT DER STÄBE**
+# Acht der Stäbe
 
-Eine Darstellung von Bewegung – Stäbe fliegen durch eine offene 
-Landschaft.
+## Schlüsselbegriffe
+- Tempo
+- Botschaft
+- Bewegung
 
-* Wahrsagerische Bedeutung: Aktivität, Geschwindigkeit, Hoffnung, Bewegung zum Ziel. Auch „Pfeile der Liebe“. 
-* **Umgekehrt:** Eifersucht, interne Streitigkeiten, Gewissensbisse, 
-  Auseinandersetzungen. 
+## Aufrecht
+Die Acht der Stäbe bringt Schwung, Nachrichten und schnelle Entwicklungen. Projekte nehmen Fahrt auf.
+
+## Umgekehrt
+Umgekehrt deuten Verzögerungen, Missverständnisse oder hektisches Chaos auf fehlende Koordination hin.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

@@ -1,6 +1,15 @@
-**DREI DER STÄBE**
+# Drei der Stäbe
 
-Eine ruhige Gestalt beobachtet von einer Klippe aus Schiffe auf See. Drei Stäbe sind in den Boden gepflanzt, einer stützt die Figur.
+## Schlüsselbegriffe
+- Zusammenarbeit
+- Weitblick
+- Expansion
 
-* Stärke, Handel, Entdeckung, Erfolg. 
-* **Umgekehrt:** Ende von Schwierigkeiten, Enttäuschung, Mühsal. 
+## Aufrecht
+Die Drei der Stäbe signalisiert Fortschritt und die Früchte langfristiger Planung. Kooperation und internationale Perspektiven öffnen Türen.
+
+## Umgekehrt
+Umgekehrt deuten Verzögerungen, fehlende Kooperation oder Selbstzweifel auf ein Anpassen der Strategie hin.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

@@ -1,4 +1,15 @@
-**DIE MÄSSIGUNG/TEMPERANCE**
+# Die Mäßigkeit
 
-* Sparsamkeit, Mäßigung, Wirtschaftlichkeit, Anpassung.
-* **Umgekehrt:** Dinge im Zusammenhang mit Kirchen, Religionen, Sekten, dem Priestertum, auch unglückliche Kombinationen, Uneinigkeit, konkurrierende Interessen.
+## Schlüsselbegriffe
+- Balance
+- Heilung
+- Integration
+
+## Aufrecht
+Die Mäßigkeit bringt Harmonie, Geduld und Ausgleich. Unterschiedliche Kräfte werden vereint, um einen nachhaltigen Mittelweg zu finden.
+
+## Umgekehrt
+Umgekehrt zeigt sie Übertreibung, Ungeduld oder das Gefühl, in Extreme zu verfallen. Fehlende Abstimmung führt zu Spannung.
+
+## Besondere Hinweise
+- Rituale der Heilung und bewusste Lebensführung fördern die Botschaft dieser Karte.
