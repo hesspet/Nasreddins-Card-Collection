@@ -1,6 +1,15 @@
-**KÖNIG DER STÄBE**
+# KÃ¶nig der StÃ¤be
 
-Eine dunkle, leidenschaftliche, lebhafte, energische und edle Persönlichkeit. Der König hält einen blühenden Stab und trägt eine symbolische Krone. Auf seinem Thron ist ein Löwe dargestellt.
+## SchlÃ¼sselbegriffe
+- Vision
+- FÃ¼hrung
+- Unternehmungsgeist
 
-* Dunkler Mann, freundlich, ehrbar, verheiratet, ehrlich und gewissenhaft. 
-* **Umgekehrt:** Gut, aber streng; ernst, jedoch tolerant. 
+## Aufrecht
+Der KÃ¶nig der StÃ¤be steht fÃ¼r strategische KreativitÃ¤t, Mut und die FÃ¤higkeit, andere zu begeistern.
+
+## Umgekehrt
+Umgekehrt weist er auf herrischen Stil, Ungeduld oder brennende, aber unausgeglichene Ambitionen hin.
+
+## Besondere Hinweise
+- Element: Feuer â€” Themen: Tatkraft, KreativitÃ¤t, Inspiration

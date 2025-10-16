@@ -1,7 +1,15 @@
-**KÖNIGIN DER STÄBE**
+# Königin der Stäbe
 
-Die Königin teilt die Eigenschaften des Königs, ist jedoch emotional magnetischer. Die Stäbe sind stets blühend und repräsentieren Leben und Lebendigkeit.
+## Schlüsselbegriffe
+- Charisma
+- Führung
+- Kreativer Ausdruck
 
-* Dunkle Frau, freundlich, keusch, liebevoll, ehrenhaft. Bei einer benachbarten Männerkarte ist sie 
-  diesem wohlgesinnt; bei einer Frauenkarte interessiert sie sich für den Fragenden. Auch Liebe zu Geld. 
-* **Umgekehrt:** Gut, sparsam, hilfreich, dienstbar. Bedeutet auch Eifersucht, Täuschung und Untreue. 
+## Aufrecht
+Die Königin der Stäbe strahlt Selbstvertrauen, Leidenschaft und magnetische Präsenz aus. Sie motiviert andere mit ihrer Vision.
+
+## Umgekehrt
+Umgekehrt können Eifersucht, Ungeduld oder Selbstzweifel verborgen sein.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

@@ -1,6 +1,15 @@
-**ASS DER STÄBE**
+# Ass der Stäbe
 
-Eine Hand erscheint aus einer Wolke und hält einen Stab.
+## Schlüsselbegriffe
+- Funke
+- Mut
+- Kreativer Impuls
 
-* Schöpfung, Unternehmungsgeist, Anfang, Geburt, Wohlstand. 
-* **Umgekehrt:** Verfall, Ruin, getrübte Freude. 
+## Aufrecht
+Das Ass der Stäbe entfacht Begeisterung, Pioniergeist und Initiative. Eine Idee oder Gelegenheit verlangt danach, beherzt ergriffen zu werden.
+
+## Umgekehrt
+Umgekehrt weist es auf verlorene Motivation, zögerliches Handeln oder vertane Chancen hin. Der innere Funke braucht neue Nahrung.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration
