@@ -1,6 +1,15 @@
-**SIEBEN DER STÄBE**
+# Sieben der Stäbe
 
-Ein junger Mann steht auf einem felsigen Vorsprung und wehrt sechs Stäbe ab, die von unten erhoben werden.
+## Schlüsselbegriffe
+- Verteidigung
+- Standhaftigkeit
+- Mut
 
-* Tapferkeit, Diskussion, Konkurrenz, Erfolg trotz widriger Umstände. 
-* **Umgekehrt:** Verwirrung, Peinlichkeiten, Angst. 
+## Aufrecht
+Die Sieben der Stäbe fordert dazu auf, erarbeitete Positionen zu verteidigen und für Überzeugungen einzustehen.
+
+## Umgekehrt
+Umgekehrt kann Erschöpfung, defensive Haltung oder das Gefühl, überrannt zu werden, auftreten.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

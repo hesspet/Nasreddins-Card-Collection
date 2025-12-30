@@ -1,6 +1,15 @@
-**PAGE DER STÄBE**
+# Bube der Stäbe
 
-Ein junger Mann steht wie in einer Verkündigungsszene. Er ist unbekannt, aber treu, und seine Botschaften sind seltsam.
+## Schlüsselbegriffe
+- Enthusiasmus
+- Neugier
+- Abenteuerlust
 
-* Wahrsagerische Bedeutung: Dunkler junger Mann, treu, ein Liebhaber, ein Bote. Neben einem Mann spricht er günstig über diesen. Gefährlicher Rivale, wenn der Page der Kelche folgt. 
-* **Umgekehrt:** Anekdoten, Ankündigungen, schlechte Nachrichten, Unentschlossenheit und Instabilität. 
+## Aufrecht
+Der Bube der Stäbe steht für jugendliche Energie, Experimente und optimistische Nachrichten. Er feuert neue Projekte an.
+
+## Umgekehrt
+Umgekehrt weist er auf Unbeständigkeit, Übermut oder unzuverlässige Versprechen hin.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

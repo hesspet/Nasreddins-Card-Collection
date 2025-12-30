@@ -1,6 +1,15 @@
-**SECHS DER STÄBE**
+# Sechs der Stäbe
 
-Ein berittener Mann trägt einen mit Lorbeer geschmückten Stab. Fußsoldaten mit Stäben flankieren ihn.
+## Schlüsselbegriffe
+- Erfolg
+- Anerkennung
+- Triumph
 
-* Triumph, gute Nachrichten, Erfüllung von Hoffnungen. 
-* **Umgekehrt:** Furcht, Verrat, Illoyalität. 
+## Aufrecht
+Die Sechs der Stäbe markiert Sieg, öffentliche Anerkennung und das Gefühl, ein Ziel erreicht zu haben. Selbstvertrauen wächst.
+
+## Umgekehrt
+Umgekehrt besteht die Gefahr von Überheblichkeit, verzögerter Anerkennung oder innerer Unsicherheit trotz Erfolg.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

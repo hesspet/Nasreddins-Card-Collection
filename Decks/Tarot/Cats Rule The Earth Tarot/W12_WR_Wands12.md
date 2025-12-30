@@ -1,6 +1,15 @@
-**RITTER DER STÄBE**
+# Ritter der Stäbe
 
-Er wird auf einer Reise dargestellt, bewaffnet mit einem kurzen Stab. Er reitet an Hügeln oder Pyramiden vorbei, ist aber nicht kriegerisch unterwegs.
+## Schlüsselbegriffe
+- Tatkraft
+- Mission
+- Direktheit
 
-* Abreise, Abwesenheit, Flucht, Emigration. Ein dunkler, freundlicher junger Mann. Ortswechsel. 
-* **Umgekehrt:** Bruch, Trennung, Unterbrechung, Zwietracht. 
+## Aufrecht
+Der Ritter der Stäbe stürmt voran, ergreift Chancen und verbreitet Begeisterung. Abenteuerlust treibt ihn an.
+
+## Umgekehrt
+Umgekehrt zeigt er Impulsivität, Inkonsequenz oder das Risiko, zu schnell das Interesse zu verlieren.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

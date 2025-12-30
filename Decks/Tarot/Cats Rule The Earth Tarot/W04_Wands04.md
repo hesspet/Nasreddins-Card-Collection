@@ -1,6 +1,15 @@
-**VIER DER STÄBE**
+# Vier der Stäbe
 
-Vier Stäbe tragen eine Girlande. Zwei Frauen mit Blumen stehen neben einer Brücke, die zu einem Herrenhaus führt.
+## Schlüsselbegriffe
+- Stabilität
+- Feier
+- Gemeinschaft
 
-* Ländliches Leben, Harmonie, Wohlstand, Frieden. 
-* **Umgekehrt:** Dieselbe Bedeutung bleibt bestehen. 
+## Aufrecht
+Die Vier der Stäbe steht für festliche Anlässe, Heimgefühl und Meilensteine. Eine Phase der Stabilität wird gefeiert.
+
+## Umgekehrt
+Umgekehrt kann es Unsicherheit über Zugehörigkeit, Verschiebung von Feierlichkeiten oder instabile Fundamente geben.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration

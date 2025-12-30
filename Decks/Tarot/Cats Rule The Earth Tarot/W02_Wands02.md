@@ -1,6 +1,15 @@
-**ZWEI DER STÄBE**
+# Zwei der Stäbe
 
-Ein Mann auf einer Zinne hält einen Globus in der rechten und einen Stab in der linken Hand.
+## Schlüsselbegriffe
+- Planung
+- Entscheidungshorizont
+- Weitblick
 
-* Reichtum, aber auch Traurigkeit, Krankheit, Unzufriedenheit. 
-* **Umgekehrt:** Überraschung, Verwunderung, Emotionen, Ärger. 
+## Aufrecht
+Die Zwei der Stäbe fordert dazu auf, Ziele zu planen und mutig neue Wege zu betrachten. Visionen werden mit praktischen Schritten verbunden.
+
+## Umgekehrt
+Umgekehrt deutet sie auf Angst vor Veränderung oder unklare Prioritäten hin. Möglichkeiten bleiben ungenutzt.
+
+## Besondere Hinweise
+- Element: Feuer — Themen: Tatkraft, Kreativität, Inspiration
